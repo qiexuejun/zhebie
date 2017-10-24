@@ -3,7 +3,7 @@
 ## 个人简介
 何塞普·瓜迪奥拉（Josep Guardiola i Sala），1971年1月18日出生于西班牙加泰罗尼亚大区桑特佩多，前西班牙职业足球运动员，曾担任西甲巴塞罗那队，拜仁慕尼黑足球俱乐部的主教练。现任曼彻斯特城足球俱乐部主教练。
 ## 照片
-![瓜迪奥拉](https://image.baidu.com/search/detail?ct=503316480&z=0&ipn=d&word=%E7%93%9C%E8%BF%AA%E5%A5%A5%E6%8B%89&hs=2&pn=1&spn=0&di=58241070030&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&ie=utf-8&oe=utf-8&cl=2&lm=-1&cs=3419775597%2C2393209468&os=2694224592%2C1191572347&simid=4063759869%2C344824384&adpicid=0&lpn=0&ln=30&fr=ala&fm=&sme=&cg=&bdtype=0&oriquery=%E7%93%9C%E8%BF%AA%E5%A5%A5%E6%8B%89&objurl=http%3A%2F%2Fwww.jx.xinhuanet.com%2Fnews%2Fsports%2F2015-04%2F16%2F1114984811_14291451691541n.jpg&fromurl=ippr_z2C%24qAzdH3FAzdH3Fooo_z%26e3B3x_z%26e3Bxtgi7wgjp_z%26e3Bv54AzdH3FgjofAzdH3Ffr56pfAzdH3Fda8c-a9AzdH3F8mAzdH3Fv_8889lb9b88_z%26e3Bip4&gsm=0)
+![瓜迪奥拉](https://image.baidu.com/search/detail?ct=503316480&z=0&ipn=d&word=%E7%93%9C%E8%BF%AA%E5%A5%A5%E6%8B%89&hs=2&pn=0&spn=0&di=159999793250&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&ie=utf-8&oe=utf-8&cl=2&lm=-1&cs=3281093142%2C1651952236&os=1275640398%2C2893532288&simid=3381029894%2C419347841&adpicid=0&lpn=0&ln=30&fr=ala&fm=&sme=&cg=&bdtype=0&oriquery=%E7%93%9C%E8%BF%AA%E5%A5%A5%E6%8B%89&objurl=http%3A%2F%2Ftitanimg.titan24.com%2Fnews%2F2009%2F07%2F22%2F2b56705b6d1248219532.jpg&fromurl=ippr_z2C%24qAzdH3FAzdH3Ff5vvj6_z%26e3Bptpwgd9_z%26e3Bv54AzdH3Fdaal-a0-ddAzdH3Fn00n9_z%26e3Bip4s&gsm=0)
 ## 球员时代
 ### 巴塞罗那
 [概况](https://zhidao.baidu.com/question/421496737.html)
