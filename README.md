@@ -18,10 +18,13 @@
 ## 教练时代
 ### 巴塞罗那
 [纪录片](https://bbs.hupu.com/17311411.html)
+![](https://image.baidu.com/search/detail?ct=503316480&z=0&ipn=d&word=%E7%93%9C%E8%BF%AA%E5%A5%A5%E6%8B%89%E8%A1%A3%E6%9C%8D&step_word=&hs=2&pn=551&spn=0&di=9492739411&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&istype=0&ie=utf-8&oe=utf-8&in=&cl=2&lm=-1&st=undefined&cs=2907803305%2C1398489844&os=4251209906%2C2957503864&simid=75635874%2C802909104&adpicid=0&lpn=0&ln=1978&fr=&fmq=1510406582382_R&fm=&ic=undefined&s=undefined&se=&sme=&tab=0&width=undefined&height=undefined&face=undefined&ist=&jit=&cg=&bdtype=0&oriquery=&objurl=http%3A%2F%2Fupload.morningpost.com.cn%2F2016%2F0201%2F1454334095736.jpg&fromurl=ippr_z2C%24qAzdH3FAzdH3Fooo_z%26e3B456gtg2r5fp_z%26e3Bv54_z%26e3BvgAzdH3Fda8mAzdH3Fada8AzdH3F8dm88cl_z%26e3Bfip4s&gsm=1fe&rpstart=0&rpnum=0)
 ### 拜仁慕尼黑
 2013年1月16日，德甲豪门拜仁慕尼黑在其官网上宣布，前巴萨主教练瓜迪奥拉将从2013-14赛季正式担任球队主教练，期间共赢得8座奖杯。
+![](https://image.baidu.com/search/detail?ct=503316480&z=0&ipn=d&word=%E7%93%9C%E8%BF%AA%E5%A5%A5%E6%8B%89%E8%A1%A3%E6%9C%8D&step_word=&hs=2&pn=124&spn=0&di=73837072101&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&istype=0&ie=utf-8&oe=utf-8&in=&cl=2&lm=-1&st=undefined&cs=588118150%2C2117925389&os=667375608%2C1640073773&simid=4208286683%2C591664216&adpicid=0&lpn=0&ln=1978&fr=&fmq=1510406582382_R&fm=&ic=undefined&s=undefined&se=&sme=&tab=0&width=undefined&height=undefined&face=undefined&ist=&jit=&cg=&bdtype=0&oriquery=&objurl=http%3A%2F%2Fsports.dzwww.com%2Frdjj%2F201404%2FW020140423287758361390.jpg&fromurl=ippr_z2C%24qAzdH3FAzdH3Ffr56pf_z%26e3B1zooo_z%26e3Bv54AzdH3F6133AzdH3Fda89a9AzdH3Fpda89a9dn_lcdbbd9_z%26e3Bip4&gsm=5a&rpstart=0&rpnum=0)
 ### 曼城
 [原因](https://www.zhihu.com/question/40048988?sort=created)
+![](https://image.baidu.com/search/detail?ct=503316480&z=0&ipn=d&word=%E7%93%9C%E8%BF%AA%E5%A5%A5%E6%8B%89%E8%A1%A3%E6%9C%8D&step_word=&hs=2&pn=682&spn=0&di=65818562271&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&istype=0&ie=utf-8&oe=utf-8&in=&cl=2&lm=-1&st=undefined&cs=554781388%2C113733305&os=4058062424%2C3759004636&simid=4153446525%2C623038713&adpicid=0&lpn=0&ln=1978&fr=&fmq=1510406582382_R&fm=&ic=undefined&s=undefined&se=&sme=&tab=0&width=undefined&height=undefined&face=undefined&ist=&jit=&cg=&bdtype=15&oriquery=&objurl=http%3A%2F%2Fwww.xnwbw.com%2Fres%2F1%2F1%2F2016-05%2F11%2FA09%2Fres01_attpic_brief.jpg&fromurl=ippr_z2C%24qAzdH3FAzdH3Fooo_z%26e3Bxgoko_z%26e3Bv54AzdH3Fip4sAzdH3Fda8m-acAzdH3F88AzdH3Fv5gpjgp_0c9nc_z%26e3Bip4&gsm=276&rpstart=0&rpnum=0)
 ## 教练数据
 [球队技术统计](http://www.sodasoccer.com/search/player/18/35255/74F66DD51D85F156.shtml）
 ## 与里皮教练对比
